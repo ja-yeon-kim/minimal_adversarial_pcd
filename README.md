@@ -1,0 +1,1 @@
+# minimun_point_atack.github.io
